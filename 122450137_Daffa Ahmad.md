@@ -1,5 +1,7 @@
 Daffa Ahmad Naufal
-122450137 
+
+122450137
+
 RB
 
 Resume VDI
